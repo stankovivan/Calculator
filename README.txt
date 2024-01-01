@@ -1,0 +1,1 @@
+References: https://icon-icons.com/icon/calculator/30001
